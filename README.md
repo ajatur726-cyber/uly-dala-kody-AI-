@@ -1,1 +1,1 @@
-# uly-dala-kody-AI-
+# uly-dala-kody-
